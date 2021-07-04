@@ -1,0 +1,1 @@
+- 👋 olá, o meu nome é Francisco de Assis, faço o curso de ciências da computação na Estácio, estou no 5º semestre do curso.
